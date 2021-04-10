@@ -1,0 +1,3 @@
+- 👋 salut, sunt @Kizzulete
+- 👀 detinatorul serverului de metin - Acantha2
+- 🌱 is tehnician amator
